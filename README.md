@@ -1,1 +1,5 @@
+website for the wip AMOGOS.
 
+
+
+AMOGOS HAS BEEN CANCELED FOR THE TIME BEING
